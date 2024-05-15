@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @rememberX1
 - 👀 I’m interested in coding 
 - 🌱 I’m currently learning python 
-- 💞️ I’m looking to collaborate on in coding 
 - 📫 How to reach me thru my email or my insta 
 - 😄 Pronouns: opakalegend 
 - ⚡ Fun fact: i love making friends 
